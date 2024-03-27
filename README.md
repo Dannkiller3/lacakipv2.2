@@ -2,7 +2,7 @@
 LACAK IP V2.2 BUAT LU
 <p align=left> <img src=https://komarev.com/ghpvc/?username=kangdecasu alt=Demias/> </p>
 
-```
+```+62 821-1927-6338 
 Kasih star lah njing
 ```
 # penginstalan
